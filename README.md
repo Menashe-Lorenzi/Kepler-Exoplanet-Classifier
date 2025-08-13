@@ -64,9 +64,8 @@ The ultimate goal is to identify which model best fits different operational con
 
 ---
 
-**Author**: Menashe Lorenzi  
-**Email**: menashelorenzi@gmail.com  
-**LinkedIn**: [Menashe Lorenzi](https://www.linkedin.com)  
+Contact
+LinkedIn: [Menashe Lorenzi](https://www.linkedin.com)   | Email: menashelorenzi@gmail.com
 
 ---
 
